@@ -5,7 +5,7 @@ In the world of American football, few matchups ignite as much excitement as a s
 Watch ░░▒▓██ ➤ [https://api.powerafftrky.com/t/clk?id=x2tRQyH9AMs17g3hm](#)  
 Download ░░▒▓██ ➤ [https://api.powerafftrky.com/t/clk?id=x2tRQyH9AMs17g3hm](#)  
 
-[![hs football][https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi2T1n11dyv1YV44JpZMVDs0j69MKefP7SEBq_lJl8EKTiUlAeGzSU1tTbUbvFAF25dq1XIa44A5Zdw8Ls0mFzp6-H0tuWvR9-10Pd3VnKGYIqf-xrzVb51uYOtaP1OPcLcekDZqHA7vb88gJVOFviT0Nq0eKUJhCALFFhYNk_Jplpg2R992WrzvKRnaXc/s16000/1437752525.webp](https://api.powerafftrky.com/t/clk?id=x2tRQyH9AMs17g3hm)
+[![hs football](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEi2T1n11dyv1YV44JpZMVDs0j69MKefP7SEBq_lJl8EKTiUlAeGzSU1tTbUbvFAF25dq1XIa44A5Zdw8Ls0mFzp6-H0tuWvR9-10Pd3VnKGYIqf-xrzVb51uYOtaP1OPcLcekDZqHA7vb88gJVOFviT0Nq0eKUJhCALFFhYNk_Jplpg2R992WrzvKRnaXc/s16000/1437752525.webp)](https://api.powerafftrky.com/t/clk?id=x2tRQyH9AMs17g3hm)
 
 Steelers vs. Eagles: A Rivalry Rekindled  
 
